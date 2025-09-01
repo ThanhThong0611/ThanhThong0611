@@ -1,4 +1,4 @@
-### Hello friends 👋, I'm Thong
+### Hello friends 👋, I'm Thong!
 
 ---
 
