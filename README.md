@@ -31,7 +31,7 @@ For me, coding is not only about solving problems, but also about growing every 
 
 ---
 
-## 📫 Reach Me
+📫 Reach Me
 
 - 🔗 [LinkedIn](https://www.linkedin.com/in/th%C3%B4ng-d%C6%B0%C6%A1ng-0113182b7/)
 - 📧 [Email](mailto:duongthanhthong0611@gmail.com)
